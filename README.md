@@ -1,1 +1,1 @@
-# mirandarx
+# pharmex store.
